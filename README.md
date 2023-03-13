@@ -1,3 +1,3 @@
-# João Gabriel Pieraço Silva.
+# João Gabriel
 
 ---
