@@ -2,7 +2,7 @@
 
 ---
 
-Endereço:  XXXXXX - Marília - SP
+Endereço:  XXXXX - Marília - SP
 
 CEP: XXXXX-XXX
 
